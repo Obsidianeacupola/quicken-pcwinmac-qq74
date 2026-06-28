@@ -1,4 +1,4 @@
-# 
+# Intelligent Quicken plugins pour Mac OS | Turbo Quicken plugins pour PC Windows. Avec applications mobiles et biffage — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
